@@ -1,1 +1,1 @@
-# kobalcek.github.io
+# kobalcek.com
